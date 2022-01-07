@@ -1,0 +1,4 @@
+Surfing
+Camping
+Reading
+Computers
